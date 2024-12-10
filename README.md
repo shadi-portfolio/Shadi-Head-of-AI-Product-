@@ -1,1 +1,0 @@
-# Shadi-Head-of-AI-Product-
